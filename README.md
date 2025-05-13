@@ -19,9 +19,7 @@ The Only Ships i hate are: Shadaria (Like EWWWW YUCKY GET AWAY FROM ME!!), Eggni
 I mostly play roblox so feel free to add me anytime you want to play Sonic TD with me! 🌹
 I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe! (any bad people who annoy me/act rude to me WILL be hidden and blocked so watch out! <3 including random friend requests WILL be ignored as well! i want to get to know people more before we even become friends/close friends lol and having the same interests as well if not then thats ok!)
 
-I go by She/Her/They/Them and He/Him!
-
-Also Note: I got copied 8 times now so DONT YOU DARE COPY MY SKINS!
+My Pronouns are She/Her/He/Him and They/Them! You can use either one! I got copied 8 times on Pony Town so DO NOT COPY MY SKINS OR THAT'S AN IMMEDIATE HIDE AND BLOCK
 
 ![[17370680500791051930141080860876](https://github.com/user-attachments/assets/681bfbfd-eedb-40c6-b804-51588e6fa1d7)](https://media4.giphy.com/media/hQw5PzD2mMvBhNQGp9/giphy.gif?cid=6c09b95237czwapz7augrph8hzfhkyp78ewrngt4sgkz3ynj&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
