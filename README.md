@@ -17,7 +17,7 @@ WAVES!! Hiya! :D
 
 Welcome to my Profile! before interacting please know that im mostly busy so C+H is welcomed! I'm a Huge Amy Kin (and a half Sonic Kin Giggles) Note: if you are a Pedo, Homophile, Racist, Sexist Etc. PLEASE DNI WITH ME! I'm a HUGE Sonamy Shipper but i ship others too! (i respect other people's ships as well! But most people hate the ships (mostly taiream, sonamy etc.) but that's ok and fair! everyone has their opinions after all!)
 The Only Ships i hate are: Shadaria (Like EWWWW YUCKY GET AWAY FROM ME!!), Eggnic (YOU SICKEN ME DNI), Knuxikal (THEIR SIBLINGS??? EWWWW???), Sonails (YUCK YOUR DISGUSTING),  Or Shadails (EWWIEEEEEE I DESPISE YOU LEGITABLY!!)
-I mostly play roblox so feel free to add me anytime you want to play Sonic TD with me! 🌹
+I mostly play roblox so feel free to add me anytime you want to play SETD with me! 🌹
 I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe! (any bad people who annoy me/act rude to me WILL be hidden and blocked so watch out! <3 including random friend requests WILL be ignored as well! i want to get to know people more before we even become friends/close friends lol and having the same interests as well if not then thats ok!)
 
 My Pronouns are She/Her/He/Him and They/Them! You can use either one! I got copied 8 times on Pony Town so DO NOT COPY MY SKINS OR THAT'S AN IMMEDIATE HIDE AND BLOCK
