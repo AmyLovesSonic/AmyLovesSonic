@@ -1,5 +1,5 @@
-Follow My Alt: @TheSpeedyBlueBlur
-Follow My Third Alt!: @TheUltimateEdgelord
+Follow Both of My Alts!: @TheSpeedyBlueBlur @TheUltimateEdgelord
+
 
 Feel Free To Sign My Atabook! <3
 
