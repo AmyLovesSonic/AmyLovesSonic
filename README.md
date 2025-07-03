@@ -28,4 +28,6 @@ I'm also a my melody kin giggles... and a sanrio fan
 
 MY MELODY SUPERMACY RAHHHHHH!!!!!!
 
+Im just a silly gal with a kind heart!! Giggles!! MY MELO IS SO MECORE FRFR!
+
 ![](https://i.pinimg.com/originals/21/d1/e2/21d1e2f4d18a68a583ffec6246a04b44.gif)
