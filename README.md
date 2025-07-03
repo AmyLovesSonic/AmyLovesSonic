@@ -1,3 +1,5 @@
+![](https://i.imgur.com/rM3Ob1U.gif)
+
 Follow Both of My Alts!: @TheSpeedyBlueBlur @TheUltimateEdgelord
 
 
@@ -33,3 +35,9 @@ MY MELODY SUPERMACY RAHHHHHH!!!!!!
 Im just a silly gal with a kind heart!! Giggles!! MY MELO IS SO MECORE FRFR!
 
 ![](https://i.pinimg.com/originals/21/d1/e2/21d1e2f4d18a68a583ffec6246a04b44.gif)
+
+Also AM A SYLVEON STAN!! WEEEEEEEE!!!!! SYLVIE'S ME FRFR 
+
+![](https://images.steamusercontent.com/ugc/441731065134968778/E0A139AFE05A44714442B0BAA9087F35667B02CD/?imw=5000&imh=5000&ima=fit&impolicy=Letterbox&imcolor=%23000000&letterbox=false)
+
+
