@@ -11,27 +11,21 @@ Also Check out My Rentry!
 
 https://rentry.co/enkfc6pe
 
-![](https://media0.giphy.com/media/h1P26E2bQuE80/giphy.gif?cid=6c09b952owv3w2phg88hi4nta9bndhy6mhnlf34c067wa3qa&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
+![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaDFscmkzYW9iYWl6cDVoMWdsejBmdDMydnE0eWdud3g2djRuZ3BlNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hQw5PzD2mMvBhNQGp9/giphy.gif)
 
-WAVES!! Hiya! :D
+![](https://i.pinimg.com/originals/61/20/37/6120370ab3bfa08c8ab7bd505ff4ce3b.gif)
 
-Welcome to my Profile! before interacting please know that im mostly busy so C+H is welcomed! I'm a Huge Amy Kin (and a half Sonic Kin Giggles) Note: if you are a Pedo, Homophile, Racist, Sexist Etc. PLEASE DNI WITH ME! I'm a HUGE Sonamy Shipper but i ship others too! (i respect other people's ships as well! But most people hate the ships (mostly taiream, sonamy etc.) but that's ok and fair! everyone has their opinions after all!)
-The Only Ships i hate are: Shadaria (Like EWWWW YUCKY GET AWAY FROM ME!!), Eggnic (YOU SICKEN ME DNI), Knuxikal (THEIR SIBLINGS??? EWWWW???), Sonails (YUCK YOUR DISGUSTING),  Or Shadails (EWWIEEEEEE I DESPISE YOU LEGITABLY!!)
-I mostly play roblox so feel free to add me anytime you want to play SETD with me! 🌹
-I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe! (any bad people who annoy me/act rude to me WILL be hidden and blocked so watch out! <3 including random friend requests WILL be ignored as well! i want to get to know people more before we even become friends/close friends lol and having the same interests as well if not then thats ok!)
+HIHI!! :D Welcome to my profile! My name is Amy but you can call me Ames! <3 I love Playing Video Games, Drawing, Listening to Music and Making New Friends! I Play Pony Town Everyday so if you ever want to come up to me feel free to int or cuddle if i have C+H in my name! I dont mind! I'm busy most of the time anyways. I also play roblox so if you ever want to play Sonic TD with me then just ask! I also play Sonic Speed Simulator, Pokemon Games and Fnaf games too! Sometimes the tycoon games cuz there so funnn!! A little note before interacting with me im a HUGE Sonamy shipper! So if your uncomfortable with the ship thats perfectly fine! Everyone has their opinions after all! ^^ I also ship other characters too (Taiream, Silvaze and Shadouge for example!) 
+A few ships that i hate: Eggnic (EWWWW YOUR DISGUSTING!), Knuxikal ( THEY'RE SIBLINGS???? DNI), Sonails (EWEWEWEW YOU DISGUST ME), Shadaria (DNI ATP YOUR GROSS). I'm Mostly at the Sonic Area on PT! Most of the time in the CRK, MD, Sprunki or the MLP area! DNI If your a pedophile, racist, sexist etc. also for the love of god PLEASE DO NOT COPY MY SKINS!! I've been copied 8 times before with my amy skins. Also follow me on other socials! Dont forget to sign my strawpage and atabook (I LOVE SILLY DRAWINGS GIGGLES). Before i forget im a HUGE AMY KIN GIGGLES! I JUST LOVE HER SO MUCH JSJSJSJSJSJSJS >w< Anyways thats everything about me! Feel free to follow me i dont bite! See ya! ![](https://i.pinimg.com/originals/68/34/ed/6834eded0cb08f3b9048b44983b90720.gif)
 
-My Pronouns are She/Her/He/Him and They/Them! You can use either one! I got copied 8 times on Pony Town so DO NOT COPY MY SKINS OR THAT'S AN IMMEDIATE HIDE AND BLOCK
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExcndzcXJvbWk1YndtaGN3dXZydnliY20ybnZ3ZmxmeTh2anJmNDB1diZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nPbRnEgAb78DkYT3Su/giphy.gif)
 
-![[17370680500791051930141080860876](https://github.com/user-attachments/assets/681bfbfd-eedb-40c6-b804-51588e6fa1d7)](https://media4.giphy.com/media/hQw5PzD2mMvBhNQGp9/giphy.gif?cid=6c09b95237czwapz7augrph8hzfhkyp78ewrngt4sgkz3ynj&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
+"Have no fear amy rose is here!" - Sonic Adventure
 
-I AM A HUGE AMY FAN RAHHHH!!! I LOVE MY SILLY PINK HEDGEHOG!! I KIN HER SM!!
+I'm also a my melody kin giggles... and a sanrio fan
 
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/87599904-e193-4b75-a519-b5ee2820e856/dg8r3de-3bc1e27d-6cb8-44f1-8031-2e8903c7f75f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg3NTk5OTA0LWUxOTMtNGI3NS1hNTE5LWI1ZWUyODIwZTg1NlwvZGc4cjNkZS0zYmMxZTI3ZC02Y2I4LTQ0ZjEtODAzMS0yZTg5MDNjN2Y3NWYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.j-ItJuRMRfyxNYHZRppSyIrheAFhE4x-kZdDG0Z-PA4)
-Giggles anyways... feel free to follow me! i dont bite <3
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExaDJldTQydjNmeXBwNDhjdGdxcWlkdzRrZzA3MTBvZGc1cG1kY211ayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ZYi6VZaUJzrNiGvJ8T/giphy.gif)
 
-![](https://www.icegif.com/wp-content/uploads/2022/01/icegif-96.gif)
+MY MELODY SUPERMACY RAHHHHHH!!!!!!
 
-I'm just a silly little gal who loves the Sonic Franchise! AS WELL AS SANRIO GIGGLES!! MY MELO IS SO MECORE!!
-
-RAHHHHHHHH!!
-![](https://media4.giphy.com/media/ZYi6VZaUJzrNiGvJ8T/giphy.gif?cid=6c09b952cg3fhypgkbrre6imo83oz8mdg1rsry2kywq84rcs&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
+![](https://i.pinimg.com/originals/21/d1/e2/21d1e2f4d18a68a583ffec6246a04b44.gif)
