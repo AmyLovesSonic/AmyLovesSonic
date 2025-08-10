@@ -22,8 +22,6 @@ A few ships that i hate: Eggnic (EWWWW YOUR DISGUSTING!), Knuxikal ( THEY'RE SIB
 
 ![](https://i.pinimg.com/originals/68/34/ed/6834eded0cb08f3b9048b44983b90720.gif)
 
-![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExcndzcXJvbWk1YndtaGN3dXZydnliY20ybnZ3ZmxmeTh2anJmNDB1diZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/nPbRnEgAb78DkYT3Su/giphy.gif)
-
 "Have no fear amy rose is here!" - Sonic Adventure
 
 I'm also a my melody kin giggles... and a sanrio fan
