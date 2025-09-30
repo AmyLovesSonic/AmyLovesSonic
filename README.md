@@ -1,7 +1,5 @@
 ![](https://i.imgur.com/rM3Ob1U.gif)
 
-Follow Both of My Alts!: @TheSpeedyBlueBlur @TheUltimateEdgelord
-
 
 Feel Free To Sign My Atabook! <3
 
@@ -9,11 +7,11 @@ https://rosegarden.atabook.org/
 
 ![](https://komarev.com/ghpvc/?username=AmyLovesSonic&color=ff69b4)
 
-Also Check out My Rentry! 
+And Check out My Rentry Too! 
 
 https://rentry.co/enkfc6pe
 
-![](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExaDFscmkzYW9iYWl6cDVoMWdsejBmdDMydnE0eWdud3g2djRuZ3BlNiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/hQw5PzD2mMvBhNQGp9/giphy.gif)
+![](https://64.media.tumblr.com/bc405d0cad1ef3045f4ee6745ef90134/tumblr_p9qhizRyul1vpintko1_400.gif)
 
 ![](https://i.pinimg.com/originals/61/20/37/6120370ab3bfa08c8ab7bd505ff4ce3b.gif)
 
