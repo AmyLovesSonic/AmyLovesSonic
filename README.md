@@ -7,11 +7,13 @@ https://rosegarden.atabook.org/
 
 ![](https://komarev.com/ghpvc/?username=AmyLovesSonic&color=ff69b4)
 
+![](https://64.media.tumblr.com/bc405d0cad1ef3045f4ee6745ef90134/tumblr_p9qhizRyul1vpintko1_400.gif)
+
 And Check out My Rentry Too! 
 
 https://rentry.co/enkfc6pe
 
-![](https://64.media.tumblr.com/bc405d0cad1ef3045f4ee6745ef90134/tumblr_p9qhizRyul1vpintko1_400.gif)
+
 
 ![](https://i.pinimg.com/originals/61/20/37/6120370ab3bfa08c8ab7bd505ff4ce3b.gif)
 
