@@ -3,8 +3,6 @@
 
 Feel Free To Sign My Atabook! <3
 
-https://rosegarden.atabook.org/
-
 ![](https://komarev.com/ghpvc/?username=AmyLovesSonic&color=ff69b4)
 
 ![](https://64.media.tumblr.com/bc405d0cad1ef3045f4ee6745ef90134/tumblr_p9qhizRyul1vpintko1_400.gif)
